@@ -1,0 +1,1 @@
+# GUS_Dane_Finansowe_per_Sektor
